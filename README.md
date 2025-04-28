@@ -8,6 +8,6 @@ Divine_Intel_Robot_Basic_Version contains signals from class A to C suitable sho
 
 Divine_Intel_Robot_Advance_Version contains higher timeframes signal classes (D and E) in addition to the elements in the basic version for swing trading. This will give you more degree of confidence, liberty and flexibility doing other jobs while making money in trading. It also ensures that you know the correct points to set stop loss and take profits to maximize your trading outcomes. However, users pay a token monthly subscription for the additional database running and maintainance costs. Terms and Conditions apply. 
 
-Please dont forget to receive the free gift of salvation of our Lord Jesus Christ if you are not a christian or you are a christian but not yet born again or dont even know what that means. And I will personally be your friend to inspire you to your best life. 
+Please dont forget to receive the free gift of salvation of our Lord Jesus Christ if you are not yet a christian or born again. I would be more than glad to attend personally to your message on fxchat and to inspire your success and your best life. 
 
 Thank you and Happy profiting.
