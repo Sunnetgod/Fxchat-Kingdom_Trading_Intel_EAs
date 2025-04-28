@@ -4,9 +4,9 @@ This is not just a robot, this is your gateway to financial freedom. This was in
 
 Now, to the product; there are two variants of the DI_EA Robot in this folder. Please download the one that corresponds to your subscription as selected on the fxchat app.
 
-Divine_Intel_Robot_BasicTwo contains signals from 1minutes, 5minutes and 30minutes. In addition it has a signal suggestion for 1minute signal only. This means that you will need more screentime in front of your device to scrap pips off your trade. Hence it is excellent for scrappers and those who trading is all they have to do. This is free and only attracts a commission based on your profit per trade. However, it is enough to make a great living for you and your family even without doing anyother job. 
+Divine_Intel_Robot_Basic_Version contains signals from class A to C suitable short-term trading. This means that you will need more screentime in front of your device to scrap pips off your trade. Hence it is excellent for scrappers and those who trades for full time. Commissions are only charged on your profit per use (paid weekly). 
 
-Divine_Intel_Robot_BasicTwo contains higher timeframes signals for 1hr, 4hr, and daily traders. This will give you more degree of confidence and liberty and flexibility to do other jobs while making money in trading. It also gives the signal suggestions for 1minute, 5minutes, 30minutes and 1hour time frames. The terms of use varies slightly with a monthly subscription to enable us run the infrastructures smoothly. 
+Divine_Intel_Robot_Advance_Version contains higher timeframes signal classes (D and E) in addition to the elements in the basic version for swing trading. This will give you more degree of confidence, liberty and flexibility doing other jobs while making money in trading. It also ensures that you know the correct points to set stop loss and take profits to maximize your trading outcomes. However, users pay a token monthly subscription for the additional database running and maintainance costs. Terms and Conditions apply. 
 
 Please dont forget to receive the free gift of salvation of our Lord Jesus Christ if you are not a christian or you are a christian but not yet born again or dont even know what that means. And I will personally be your friend to inspire you to your best life. 
 
